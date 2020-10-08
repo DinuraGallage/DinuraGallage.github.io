@@ -1,1 +1,0 @@
-# DinuraGallage.github.io
